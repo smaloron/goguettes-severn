@@ -18,7 +18,7 @@ Ni moule, ni forme imposée !
 Severn fait des graines rebelles  
 Qui n’ont jamais voulu germer.  
 Elle invente une botanique  
-Qui fait trembler les savants,  
+Qui fait trembler tous les savants,  
 Et ses sculptures fantastiques  
 Font perdre le nord aux pédants !
 
