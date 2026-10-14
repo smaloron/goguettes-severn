@@ -10,22 +10,22 @@ Même les lois ne comptent plus !
 
 C’est la lutte artistique,  
 Groupons-nous, et demain,  
-L’Internationale  
-Sortira de ses deux mains !
+Un moonde poétiique 
+Sortira de ses mains !
 
 Ni dieu, ni maître, ni modèle,  
 Ni moule, ni forme imposée !  
 Severn fait des graines rebelles  
 Qui n’ont jamais voulu germer.  
 Elle invente une botanique  
-Qui fait trembler les savants,  
+Qui fait trembler tous les savants,  
 Et ses sculptures fantastiques  
 Font perdre le nord aux pédants !
 
 C’est la lutte artistique,  
 Groupons-nous, et demain,  
-L’Internationale  
-Sortira de ses deux mains !
+Un moonde poétiique  
+Sortira de ses mains !
 
 À soixante ans, toujours rebelle,  
 Tu n’as pas rendu ton drapeau !  
@@ -38,5 +38,5 @@ C’est mon monde que tu as changé !
 
 C’est la lutte artistique,  
 Groupons-nous, et demain,  
-L’Internationale  
-Sortira de ses deux mains !
+Un moonde poétiique  
+Sortira de ses mains !
