@@ -66,17 +66,17 @@ Mais toujours des projets pour cent ans.
 Le temps lui dit : « Il faut ralentir ! »  
 Elle lui répond : « Va donc dormir ! »  
 Il voudrait bien la rattraper,  
-Mais elle elle reste libre et et indomptée.  
-Et le pauvre temps, tout essoufflé,  
+Mais elle reste libre et et indomptée.  
+Et le pauvre temps essoufflé,  
 A décidé d'abandonner !
 
 Non, les années n'aiment pas beaucoup  
 Qu'on leur fasse faire autant de tours.  
 Mais Severn n'en a rien à faire,  
-Elle a de mondes à refaire !
+Elle a des mondes à refaire !
 
 
-Voilà vingt-cinq ans, sans prétention,  
+Vingt-cinq ans, sans prétention,  
 Que j' partage ses révolutions.  
 J'ai vu passer bien des printemps,  
 Sans jamais voir passer le temps.  
