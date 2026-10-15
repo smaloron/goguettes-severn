@@ -47,7 +47,7 @@ Mais moi, je trouve ça très joli,
 Cette petite graine de folie
 
 Un jour, elle se met à chanter,  
-Un autre en clown déguisée 
+Un autre en clown déguisée,   
 Elle change de rôle, de costume,  
 Et moi, dans la salle, je m'allume.  
 Qu'elle soit chanteuse, clooown ou actrice,  
