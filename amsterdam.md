@@ -1,6 +1,6 @@
 
 
-Dans l’atelier de Severn,  
+Dans l’atelier d'Severn,  
 Y a des graines qui sommeillent,  
 Y a des graines qui s’éveillent,  
 Sous ses mains pleines de terre.  

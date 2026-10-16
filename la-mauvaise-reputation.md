@@ -6,8 +6,6 @@ Qu'on soit tranquille ou bien pressé,
 Elle a trois projets à lancer.  
 Elle veut des fleurs suur les plafonds,  
 Et des arbres au beau milieu du salon.  
-Et quand je lui demande pourquoi,  
-Elle me répond : « Pourquoi pas ? »
 
 Non, les gens n'aiment pas beaucoup  
 Qu'on fasse pousser des fleurs partout.  
@@ -21,8 +19,6 @@ J'ai dit : « Des murs, c'est vertical ! »
 Elle a répondu : « C'est banal ! »  
 Neuf mois plus tard, onon avait fait  
 Une maison sans aucun angles droits.  
-Et moi, devant ce drôle de toit,  
-Je me disais ça a d'l'effet
 
 Non, les gens n'aiment pas beaucoup  
 Une maison au toit chelou.  
@@ -36,8 +32,6 @@ Elle prend trois graines et d' l'argile,
 Et fait des choses impossibles.  
 Dees fruits géants, des graines étranges,  
 Des formes que même la nature envie.  
-Et quand je lui demande : « C'est quoi ? »  
-Elle me répond : « Devine, toi ! »
 
 Non, les gens n'aiment pas beaucoup  
 Qu'on fasse des graines plus grosses que nous.  
@@ -50,8 +44,6 @@ Elle change de rôle, de costume,
 Et moi, dans la salle, je m'allume.  
 Qu'elle soit chanteuse, clooown ou actrice,  
 Elle joue toujours sans ferveur factice.  
-Et quand le public l'applaudit,  
-C'est moi qui suis le plus ravi !
 
 Non, les gens n'aiment pas beaucoup  
 Qu'on fasse le clown un peu partout.  
@@ -65,8 +57,6 @@ Le temps lui dit : « Il faut ralentir ! »
 Elle lui répond : « Va donc dormir ! »  
 Il voudrait bien la raattraper,  
 Mais elle reste libre et et indomptée.  
-Et le pauvre temps essoufflé,  
-A décidé d'abandonner !
 
 Non, les années n'aiment pas beaucoup  
 Qu'on leur fasse faire autant de tours.  

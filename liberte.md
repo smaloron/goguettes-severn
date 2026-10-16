@@ -29,17 +29,17 @@ Ta liberté
 Ton verbe Mécano  
 Qui démonte le décor.
 
-Pour nous faire voyager,
-Tu inventes des mots qui bousculent les phrases,
-Pour nous faire rêver,
-De mondes où le réel se déguise et s'embrase.
+Pour nous faire voyager,  
+Tu inventes des mots qui bousculent les phrases,  
+Pour nous faire rêver,  
+De mondes où le réel se déguise et s'embrase.  
 
 Ta liberté  
 C’est ne jamais savoir  
 Où finit le possible,  
 Ta liberté  
 C’est encore de faire choir  
-Les murs invisibles.
+Les frontières invisibles.
 
 Et depuis tant d’années  
 Je te vois agrandir le monde à ta manière  
