@@ -17,16 +17,16 @@ Que les fleurs elles mêmes désobéissent au vent,
 Quand tu fais la guerre aux vieilles idées reçues,  
 Et que tes rêves fous deviennent des imprévus,  
 Quand le monde te dit que cela ne se fait pas,  
-Tu souris et tu dis : « Pourquoi pas ? »
+Tu souris et tu dis : Pourquoi pas ?
 
 
 Quand les ans ont laissé quelques plis sur nos fronts,  
-Que nous avons vécu vingt-cinq révolutions,  
+Avons vécu ensemble vingt-cinq révolutions,  
 Quand nos pas sont parfois un peu moins empressés,  
 Mais que tu trouves encore mille choses à inventer,  
 Quand je vois dans tes yeux cette même insolence,  
 Et dans tes gestes fous cette belle impatience,  
-Quand le temps vient frapper doucement à nos volets,  
+Quand le temps vient frapper doucement nos volets,  
 C'est toi que je vois tout comme au premier jour.
 
 

@@ -1,7 +1,5 @@
 
 
-
-
 Dans notr' maison, sans prétention,  
 Severn fait la révolution.  
 Qu'on soit tranquille ou bien pressé,  
@@ -17,7 +15,7 @@ Mais moi, je trouve ça très bien,
 Quand on fleuri mon quotidien
 
 
-Un jour, Severn m'a déclaré :  
+Un jour, Severn a déclaré :  
 « Un atelier, il faut le monter ! »  
 J'ai dit : « Des murs, c'est vertical ! »  
 Elle a répondu : « C'est banal ! »  
@@ -61,11 +59,11 @@ Mais moi, je suis fier comme un roi,
 Quand sur scène elle est devant moi !
 
 
-Aujourd'hui, Severn a soixante ans,  
-Mais toujours des projets pour cent ans.  
+Severn fête ses soixante ans,  
+Elle a des projets pour cent ans.  
 Le temps lui dit : « Il faut ralentir ! »  
 Elle lui répond : « Va donc dormir ! »  
-Il voudrait bien la rattraper,  
+Il voudrait bien la raattraper,  
 Mais elle reste libre et et indomptée.  
 Et le pauvre temps essoufflé,  
 A décidé d'abandonner !
@@ -74,20 +72,4 @@ Non, les années n'aiment pas beaucoup
 Qu'on leur fasse faire autant de tours.  
 Mais Severn n'en a rien à faire,  
 Elle a des mondes à refaire !
-
-
-Vingt-cinq ans, sans prétention,  
-Que j' partage ses révolutions.  
-J'ai vu passer bien des printemps,  
-Sans jamais voir passer le temps.  
-Elle a changé tous mes chemins,  
-En me donnant tout simplement la main.  
-Et si c'était à recommencer,  
-Je reprendrais le même sentier.
-
-Non, les années n'y peuvent rien,  
-Je veux encore tenir sa main.  
-Malgré le temps et les travers
-C'est toujours elle que je préfère
-
 

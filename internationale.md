@@ -14,7 +14,7 @@ Un moonde poétiique
 Sortira de ses mains !
 
 Ni dieu, ni maître, ni modèle,  
-Ni moule, ni forme imposée !  
+Ni moule, ni formes imposées !  
 Severn fait des graines rebelles  
 Qui n’ont jamais voulu germer.  
 Elle invente une botanique  
