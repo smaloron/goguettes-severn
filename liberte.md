@@ -27,7 +27,7 @@ Elle habite les mots
 Que tu inventes encore,  
 Ta liberté  
 Ton verbe Mécano  
-Qui démonte le décor.
+Démonte le décor.
 
 Pour nous faire voyager,  
 Tu inventes des mots qui bousculent les phrases,  

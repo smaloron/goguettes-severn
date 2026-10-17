@@ -10,7 +10,7 @@ Même les lois ne comptent plus !
 
 C’est la lutte artistique,  
 Groupons-nous, et demain,  
-Un moonde poétiique 
+Un monde poétiique 
 Sortira de ses mains !
 
 Ni dieu, ni maître, ni modèle,  
@@ -24,7 +24,7 @@ Font perdre le nord aux pédants !
 
 C’est la lutte artistique,  
 Groupons-nous, et demain,  
-Un moonde poétiique  
+Un monde poétiique  
 Sortira de ses mains !
 
 À soixante ans, toujours rebelle,  
@@ -38,5 +38,5 @@ C’est mon monde que tu as changé !
 
 C’est la lutte artistique,  
 Groupons-nous, et demain,  
-Un moonde poétiique  
+Un monde poétiique  
 Sortira de ses mains !
