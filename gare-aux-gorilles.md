@@ -1,7 +1,7 @@
 Dans son jardin notre Severn  
 N’aime pas les fleurs au cordeau,  
 Les petits massifs bien trop ternes,  
-Les haies qu’on taille au millimètre.  
+Les haies qu’on taille comme des poireaux.  
 Elle laisse aller les orties,  
 Les pâquerettes, les boutons,  
 Et si le liseron s’enfuit,  
